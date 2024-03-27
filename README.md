@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Timkyl7
 - 👀 I’m interested in reading
-- 🌱 I’m currently learning to be alone
+- 🌱 I’m currently learning something that im afraid of.
 - 💞️ I’m fixing my self every day 
 - 📫 you can message me anytime
 - 😄 Pronouns: Tim
